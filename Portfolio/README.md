@@ -411,3 +411,46 @@ For this reason, I estarted working on limiting the amount of the people that ca
 [![Trial with people 2](https://img.youtube.com/vi/Gj9XMPthGQk/0.jpg)](https://www.youtube.com/watch?v=Gj9XMPthGQk)
 
 I think this is my final project.
+
+## Final Showcase
+
+### Session 12
+
+The final showcase was a great way to end the summer study course since you could see, not only your peers course work, but, also every other summer course work. So you could get an idea of what the other areas of design were working on and what they managed to develop in this 3 weeks.
+
+[![Final Showcase Projects](https://img.youtube.com/vi/----/0.jpg)](https://www.youtube.com/watch?v=----)
+
+Although I was a little bit disappointed with the showcase layout. I fell that CCI offers a lot of studies in technology and design which are really relevant now a days, and the class was just pushed to a very secluded room with no air and one that was at the very end, not really visible if you were not actively exploring and looking for it.
+
+[![Final Showcase Classroom](https://img.youtube.com/vi/----/0.jpg)](https://www.youtube.com/watch?v=----)
+
+
+I believe that CCI offers studies that are very intersting, but there is just a small community aware of its existance, and I think that trying to attract more people to this area of design should be an objective of the final showcase. And you can only get peoples attention when the work is 
+striking and intersting. And althouugh I believe the work my peers and I did fullfilled those requirements, the setup did not, and that might have afected the amount of exposure the couse and computing design as such has.
+
+I must admit that I was also very nervous bfore the showcase, since I thought that maybe people would just not be intersted or would walk away without really paying any mind to the projects. And even though, at first they were really shy and didn't want to like tuch the computers and interact that much because they were scared, I belief at the end there where some fun interactions and people really enjoyed the projects.
+
+[![Final Project](https://img.youtube.com/vi/----/0.jpg)](https://www.youtube.com/watch?v=----)
+
+
+[![Interractions Showcase 1](https://img.youtube.com/vi/4LB3to9IUzQ/0.jpg)](https://www.youtube.com/watch?v=4LB3to9IUzQ)
+
+[![Interractions Showcase 2](https://img.youtube.com/vi/63l4n5iRFUs/0.jpg)](https://www.youtube.com/watch?v=63l4n5iRFUs)
+
+[![Interractions Showcase 3](https://img.youtube.com/vi/9TGqq-QcbD0/0.jpg)](https://www.youtube.com/watch?v=9TGqq-QcbD0)
+
+[![Interractions Showcase 4](https://img.youtube.com/vi/FYzNsQ50-yM/0.jpg)](https://www.youtube.com/watch?v=FYzNsQ50-yM)
+
+[![Interractions Showcase 5](https://img.youtube.com/vi/_qopPVfSP18/0.jpg)](https://www.youtube.com/watch?v=_qopPVfSP18)
+
+[![Interractions Showcase 6](https://img.youtube.com/vi/a3DL0nVOYbA/0.jpg)](https://www.youtube.com/watch?v=a3DL0nVOYbA)
+
+[![Interractions Showcase 7](https://img.youtube.com/vi/SvU1leKfxeQ/0.jpg)](https://www.youtube.com/watch?v=SvU1leKfxeQ)
+
+[![Interractions Showcase 8](https://img.youtube.com/vi/8gViw19K08s/0.jpg)](https://www.youtube.com/watch?v=8gViw19K08s)
+
+[![Interractions Showcase 9](https://img.youtube.com/vi/kSkYmzOKH04/0.jpg)](https://www.youtube.com/watch?v=kSkYmzOKH04)
+
+[![Interractions Showcase 10](https://img.youtube.com/vi/LkvJZShQYYI/0.jpg)](https://www.youtube.com/watch?v=LkvJZShQYYI)
+
+Overall, I think it was a very successful showcase, and I had a lot of fun working on the proyect since I also got to work with a program and topics I wasn't very familiar with. I believe there were some challenges, like the fact that every single person that was on the frame would affect the sound, so it sounded a little bit messy. Also, I think that I would also be better with some changes, like seting a person limit and dividing the screan beter, so that the sound woul've been less disordered and a bit more musical. Nevertheless, I do think that this is something that could be developed even further, and with some changes and improvements, it could become something really great. 
