@@ -418,11 +418,10 @@ I think this is my final project.
 
 The final showcase was a great way to end the summer study course since you could see, not only your peers course work, but, also every other summer course work. So you could get an idea of what the other areas of design were working on and what they managed to develop in this 3 weeks.
 
-[![Final Showcase Projects](https://img.youtube.com/vi/----/0.jpg)](https://www.youtube.com/watch?v=----)
-
+[![Final Showcase Projects](https://img.youtube.com/vi/Nq3tFcWkVDI/0.jpg)](https://www.youtube.com/watch?v=Nq3tFcWkVDI)
 Although I was a little bit disappointed with the showcase layout. I fell that CCI offers a lot of studies in technology and design which are really relevant now a days, and the class was just pushed to a very secluded room with no air and one that was at the very end, not really visible if you were not actively exploring and looking for it.
 
-[![Final Showcase Classroom](https://img.youtube.com/vi/----/0.jpg)](https://www.youtube.com/watch?v=----)
+[![Final Showcase Classroom](https://img.youtube.com/vi/OGNOobgC4Po/0.jpg)](https://www.youtube.com/watch?v=OGNOobgC4Po)
 
 
 I believe that CCI offers studies that are very intersting, but there is just a small community aware of its existance, and I think that trying to attract more people to this area of design should be an objective of the final showcase. And you can only get peoples attention when the work is 
@@ -430,8 +429,7 @@ striking and intersting. And althouugh I believe the work my peers and I did ful
 
 I must admit that I was also very nervous bfore the showcase, since I thought that maybe people would just not be intersted or would walk away without really paying any mind to the projects. And even though, at first they were really shy and didn't want to like tuch the computers and interact that much because they were scared, I belief at the end there where some fun interactions and people really enjoyed the projects.
 
-[![Final Project](https://img.youtube.com/vi/----/0.jpg)](https://www.youtube.com/watch?v=----)
-
+[![Final Project](https://img.youtube.com/vi/5r70Jh4zN9I/0.jpg)](https://www.youtube.com/watch?v=5r70Jh4zN9I)
 
 [![Interractions Showcase 1](https://img.youtube.com/vi/4LB3to9IUzQ/0.jpg)](https://www.youtube.com/watch?v=4LB3to9IUzQ)
 
